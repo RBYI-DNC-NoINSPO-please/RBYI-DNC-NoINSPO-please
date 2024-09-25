@@ -27,7 +27,3 @@ This is short, but please read before you interact:
 
 - If you think you've seen me before, you have. I had to delete so many internet accounts after a few incidents in the past. 
 
-
-RBYI-DNC-NoINSPO-please/RBYI-DNC-NoINSPO-please is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
