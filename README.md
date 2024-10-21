@@ -15,8 +15,6 @@ This is short, but please read before you interact:
 
 - Hazbin Hotel / Helluva Boss, My Hero Academia, Regrevator, or Dream SMP fans please don't interact with me. 
 
-- Tea Knight Cookie cosplayers please don't interact with me.
-
 - If I'm ever with my friend Paggy, for some reason people walk up to us and make uncomfy jokes just because we're cosplaying PureLily. Please don't. I have a bad exeprience with dirty jokes.
 
 - Don't make dirty j. And if you have your head in the gutter, maybe don't interact with me, please.
