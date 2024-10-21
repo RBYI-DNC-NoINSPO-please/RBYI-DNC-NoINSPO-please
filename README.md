@@ -4,6 +4,7 @@
 
 - [@Paggylyn](https://github.com/Paggylyn) my beloved. 
 
+𝘙𝘦𝘤𝘰𝘷𝘦𝘳𝘺 𝘵𝘢𝘬𝘦𝘴 𝘭𝘰𝘯𝘨, 𝘣𝘶𝘵 𝘵𝘩𝘦 𝘳𝘦𝘴𝘶𝘭𝘵 𝘪𝘴 𝘧𝘳𝘦𝘦𝘪𝘯𝘨. 𝘈𝘯𝘥 𝘐'𝘮 𝘤𝘭𝘰𝘴𝘦𝘳 𝘵𝘩𝘢𝘯 𝘦𝘷𝘦𝘳 𝘣𝘦𝘧𝘰𝘳𝘦. 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘵𝘰 𝘢𝘭𝘭 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘯 𝘗𝘰𝘯𝘺 𝘛𝘰𝘸𝘯 𝘧𝘰𝘳 𝘭𝘦𝘵𝘵𝘪𝘯𝘨 𝘗𝘰𝘯𝘺 𝘛𝘰𝘸𝘯 𝘳𝘦𝘮𝘢𝘪𝘯 𝘮𝘺 𝘦𝘴𝘤𝘢𝘱𝘪𝘴𝘮 𝘵𝘩𝘳𝘰𝘶𝘨𝘩𝘰𝘶𝘵 𝘵𝘩𝘪𝘴.
 
 This is short, but please read before you interact:
 
@@ -20,8 +21,6 @@ This is short, but please read before you interact:
 - I'm always comfortable with C + H from anyone if I'm alone. But I'm likely afk. 
 
 - I like to roleplay on Islands.
-
-- Currently recovering, so please be patient with me. I get stressed out by situations easily and tend to randomly leave because of it.
 
 - I like Cookie Run a lot.
 
