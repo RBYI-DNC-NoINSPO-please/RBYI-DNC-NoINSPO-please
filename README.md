@@ -1,6 +1,6 @@
 ❝​🇭​​🇦​​🇷​​🇩​​🇸​​🇭​​🇮​​🇵​​🇸​ ​🇦​​🇷​​🇪​ ​🇲​​🇪​​🇦​​🇳​​🇹​ ​🇹​​🇴​ ​🇧​​🇪​ ​🇸​​🇭​​🇦​​🇷​​🇪​​🇩​.❝
 
-- [![image](https://github.com/user-attachments/assets/10243290-0c1d-4b39-8602-a16138958cfc)
+[![image](https://github.com/user-attachments/assets/10243290-0c1d-4b39-8602-a16138958cfc)
 
 - [@Paggylyn](https://github.com/Paggylyn) my beloved. 
 
@@ -17,7 +17,7 @@ This is short, but please read before you interact:
 
 - If I'm ever with my friend Paggy, for some reason people walk up to us and make uncomfy jokes just because we're cosplaying PureLily. Please don't. I have a bad exeprience with dirty jokes.
 
-- Don't make dirty joked every other sentence. I can tolerate some, just not an excessive amount. And if you have your head in the gutter, maybe don't interact with me, please.
+- Don't make dirty jokes every other sentence. I can tolerate some, just not an excessive amount. And if you have your head in the gutter, maybe don't interact with me, please.
 
 - I'm always comfortable with C + H from anyone if I'm alone. But I'm likely afk. 
 
