@@ -13,6 +13,8 @@ This is short, but please read before you interact:
 
 - Hi. I'm generally quiet on Pony Town. If none of my friends are online, I'm likely AFK.
 
+- I rarely block or hide. You have to do some genuinely gnarly stuff to get blocked or hidden by me.
+
 - Hazbin Hotel / Helluva Boss, My Hero Academia, Regrevator, or Dream SMP fans please don't interact with me. 
 
 - If I'm ever with my friend Paggy, for some reason people walk up to us and make uncomfy jokes just because we're cosplaying PureLily. Please don't. I have a bad exeprience with dirty jokes.
