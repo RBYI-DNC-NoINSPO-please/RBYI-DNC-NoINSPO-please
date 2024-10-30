@@ -27,6 +27,8 @@ This is short, but please read before you interact:
 
 - I like Cookie Run a lot.
 
+- I'm usually only online when my friend Paggy is online. But I think I'm getting more comfortable being alone.
+
 - If you think you've seen me before, you have. I had to delete so many internet accounts after a few incidents in the past.
 
   Thank you for reading and "🌻𝕄𝕒𝕪 𝕗𝕠𝕣𝕥𝕦𝕟𝕖 𝕓𝕖 𝕦𝕡𝕠𝕟 𝕪𝕠𝕦 𝕥𝕠𝕕𝕒𝕪🌻."
