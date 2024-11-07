@@ -4,7 +4,6 @@
 
 - [@Paggylyn](https://github.com/Paggylyn) my beloved. 
 
-𝘙𝘦𝘤𝘰𝘷𝘦𝘳𝘺 𝘵𝘢𝘬𝘦𝘴 𝘭𝘰𝘯𝘨, 𝘣𝘶𝘵 𝘵𝘩𝘦 𝘳𝘦𝘴𝘶𝘭𝘵 𝘪𝘴 𝘧𝘳𝘦𝘦𝘪𝘯𝘨. 𝘈𝘯𝘥 𝘐'𝘮 𝘤𝘭𝘰𝘴𝘦𝘳 𝘵𝘩𝘢𝘯 𝘦𝘷𝘦𝘳 𝘣𝘦𝘧𝘰𝘳𝘦. 𝘛𝘩𝘢𝘯𝘬 𝘺𝘰𝘶 𝘵𝘰 𝘢𝘭𝘭 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘯 𝘗𝘰𝘯𝘺 𝘛𝘰𝘸𝘯 𝘧𝘰𝘳 𝘭𝘦𝘵𝘵𝘪𝘯𝘨 𝘗𝘰𝘯𝘺 𝘛𝘰𝘸𝘯 𝘳𝘦𝘮𝘢𝘪𝘯 𝘮𝘺 𝘦𝘴𝘤𝘢𝘱𝘪𝘴𝘮 𝘵𝘩𝘳𝘰𝘶𝘨𝘩𝘰𝘶𝘵 𝘵𝘩𝘪𝘴.
 
 ![ezgif-3-396f3708ea](https://github.com/user-attachments/assets/811b0405-34a1-4bd0-a6c1-93aa84e8275c)
 
@@ -26,6 +25,10 @@ This is short, but please read before you interact:
 - I like to roleplay on Islands.
 
 - I like Cookie Run a lot.
+
+- On regards to beast x ancient shipping, it's not my cup of tea, nor something I endorce. But I don't support people dog-piling people who do ship it.
+  
+- I'm okay with ships so long as it's not minor x adult or family member x family member. That's just messed up. And if you want to defend that with "Eurgh, it's fictional characters". Have you considered that some people have trauma from this sort of stuff? You're triggering people's trauma and it's immoral. Period. Don't interact with me if you're a proshipper.
 
 - I'm usually only online when my friend Paggy is online. But I think I'm getting more comfortable being alone.
 
