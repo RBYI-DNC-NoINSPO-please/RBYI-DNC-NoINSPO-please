@@ -26,7 +26,7 @@ This is short, but please read before you interact:
 
 - I like Cookie Run a lot.
 
-- On regards to beast x ancient shipping, it's not my cup of tea, nor something I endorce. But I don't support people dog-piling people who do ship it.
+- On regards to beast x ancient shipping, it's not my cup of tea, nor something I endorce. But I don't support people dog-piling people who do ship it. As long as it's not illegal, let people ship what they want.
   
 - I'm okay with ships so long as it's not minor x adult or family member x family member. That's just messed up. And if you want to defend that with "Eurgh, it's fictional characters". Have you considered that some people have trauma from this sort of stuff? You're triggering people's trauma and it's immoral. Period. Don't interact with me if you're a proshipper.
 
