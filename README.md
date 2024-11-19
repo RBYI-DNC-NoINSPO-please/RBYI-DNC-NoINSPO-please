@@ -28,7 +28,7 @@ This is short, but please read before you interact:
 
 - On regards to beast x ancient shipping, it's not my cup of tea, nor something I endorce. But I don't support people dog-piling people who do ship it. 
   
-- I'm okay with all ships so long as it's not minor x adult or family member x family member. Stay away from me if you do ship it.
+- I'm okay with all ships so long as it's not ped*philia or inc*st. Stay away from me if you do ship it.
   
 - I'm usually only online when my friend Paggy is online. But I think I'm getting more comfortable being alone.
 
